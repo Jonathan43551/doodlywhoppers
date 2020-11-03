@@ -14,7 +14,7 @@ At least two 4 inch diameter cuts of fabric that have been fused together with a
 WHOSE LIVES MATTER? BLACK LIVES MATTER 
 
 How To Make A Doodly Whopper  
-1. please pause, consider water inside of you and around. then take a moment to consider grandmother earth and how our decisions in our place on turtle island.
+1. please pause, consider water inside of you and around. then take a moment to consider grandmother earth and how our decisions in influence turtle island.
 2. pick two pieces of fabric about 5-6" in diameter, this materal needs to flex and bend easily. I cut with scissors, remember to catch any scraps/litter.
 3. think about why it is important to defund the seattle police department immediately by at least 50% and invest that money in black communities. 
 4. it's important to me that we ensure their holistic police budget is reduced by at least 50%, I cut the fabric by folding 4 times, then cutting the point.
@@ -44,7 +44,7 @@ Al menos dos cortes de tela de 4 pulgadas de diámetro que se hayan fusionado co
 Black Lives Matter (Las Vidas Negras Importan).
 
 Cómo hacer un gallo Doodly
-1. Por favor, haga una pausa, considere el agua dentro y alrededor de usted. luego tómese un momento para considerar a la abuela tierra y cómo nuestras decisiones en nuestro lugar en la isla tortuga.
+1. please pause, consider water inside of you and around. then take a moment to consider grandmother earth and how our decisions in influence turtle island.
 2. Elija dos piezas de tela de aproximadamente 5-6 "de diámetro, este material necesita flexionarse y doblarse fácilmente. Corto con tijeras, recuerde recoger los restos / basura.
 3. Piense en por qué es importante desfinanciar al departamento de policía de Seattle de inmediato al menos en un 50% e invertir ese dinero en las comunidades negras.
 4. Es importante para mí que nos aseguremos de que su presupuesto policial integral se reduzca al menos en un 50%, corte la tela doblando 4 veces y luego cortando la punta.
