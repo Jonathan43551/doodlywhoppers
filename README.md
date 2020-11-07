@@ -16,7 +16,7 @@ WHOSE LIVES MATTER? BLACK LIVES MATTER
 How To Make A Doodly Whopper  
 1. please pause, consider water inside of you and around. then take a moment to consider grandmother earth and how our decisions in influence turtle island.
 2. pick two pieces of fabric about 5-6" in diameter, this materal needs to flex and bend easily. I cut with scissors, remember to catch any scraps/litter.
-3. think about why it is important to defund the seattle police department immediately by at least 50% and invest that money in black communities. 
+3. think about why it is important to defund the seattle police department immediately by at least 100% and invest that money in black communities. 
 4. it's important to me that we ensure their holistic police budget is reduced by at least 50%, I cut the fabric by folding 4 times, then cutting the point.
 5. practice awareness, be respectful of the world around you, then use a hammer to connect the bottom 1/2" grommet piece to the thin top 1/2" grommet piece.
 6. feel the fabric outer edge, fold into 3 edges, remember to breathe,[one at a time] imagine 6 small holes in each fabric piece for a 1/4" grommet, folding to a point and cut.
@@ -47,7 +47,7 @@ Cómo hacer un gallo Doodly
 1. please pause, consider water inside of you and around. then take a moment to consider grandmother earth and how our decisions in influence turtle island.
 2. Elija dos piezas de tela de aproximadamente 5-6 "de diámetro, este material necesita flexionarse y doblarse fácilmente. Corto con tijeras, recuerde recoger los restos / basura.
 3. Piense en por qué es importante desfinanciar al departamento de policía de Seattle de inmediato al menos en un 50% e invertir ese dinero en las comunidades negras.
-4. Es importante para mí que nos aseguremos de que su presupuesto policial integral se reduzca al menos en un 50%, corte la tela doblando 4 veces y luego cortando la punta.
+4. Es importante para mí que nos aseguremos de que su presupuesto policial integral se reduzca al menos en un 100%, corte la tela doblando 4 veces y luego cortando la punta.
 5. Practique la conciencia, sea respetuoso con el mundo que lo rodea, luego use un martillo para conectar la pieza de ojal de 1/2 "inferior a la pieza de ojal de 1/2" superior delgada.
 6. Toque el borde exterior de la tela, dóblelo en 3 bordes, recuerde respirar, [uno a la vez] imagine 6 pequeños orificios en cada pieza de tela para un ojal de 1/4 ", doble en punta y corte.
 7. [uno a la vez] use un martillo para conectar la pieza de ojal inferior de 1/4 "a la pieza de ojal superior delgada de 1/4", use arandelas / círculos de tela si es necesario.
