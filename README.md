@@ -57,3 +57,16 @@ Cómo hacer un gallo Doodly
 11. Ensamble varios clips giratorios y otros llaveros para hacer el aparejo para sujetar, también me gusta usar un anillo de madera tratada de 1 ".
 
 ## ## ## ##
+
+Hello my name is Jonathan Foster, I value people over property, I look forward to when we don't waste millions of dollars funding this particular police force. END QUALIFIED IMMUNITY, this is my own perspective and understanding after growing up around this law enforcement force and seeing video evidence of their actions on stream. I understand that any group of employees working there will prioritize hurting people, they cannot be reformed and made into something that isn't abusive. I understand that you and I cannot be free until we are all free. I understand that the Seattle Police department employees who work for the city will continue to take money, abuse humans, capture humans and protect capital until their paychecks are gone. 
+
+Black Lives Matter
+1. Defund SPD by 100%
+2. Invest in Black communities
+3. Free ALL protesters
+4. No New Youth Jail
+5. Recall Jenny.D
+
+take it to the streets, defund the police, no justice no peace
+
+## ## ## ##
