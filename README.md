@@ -1,11 +1,17 @@
+Black Lives Matter
+1. Defund SPD by 100% at least
+2. Invest in Black communities
+3. Amnesty for ALL protesters
+4. No New Youth Jail
+5. Recall Jenny.D
+
+
 ## ## ## ##
 instructions to build your own :)
 
-optimism through action. doodly whoppers are kinda like custom poi, handles attached to swivels attached to fabric shells containing LED lights. It's open source on github, you can make your own and share different versions with your friends. Doodly whoppers With handles around the wrist can keep your hands and lights off the ground. I use a hammer to connect the two brass grommet pieces, please be careful in general, also please be respectful of those around you. I hope you are able to find these materials where you are, I chose brass for properties related to rust/oxidation and bacteria growth. These can also be washed, or I have tried it without regret. When you make these, please remember that BLACK LIVES MATTER - 
+optimism through action. doodly whoppers are kinda like custom poi, handles attached to swivels attached to fabric shells containing LED lights. It's open source on github, you can make your own and share different versions with your friends. Doodly whoppers With handles around the wrist can keep your hands and lights off the ground. I use a hammer to connect the two brass grommet pieces, please be careful in general, also please be respectful of those around you. I hope you are able to find these materials where you are, I chose brass for properties related to rust/oxidation and bacteria growth. These can also be washed, or I have tried it without regret. When you make these, please remember that BLACK LIVES MATTER
 
 assembled with a variety of materials to be durable and provide a safe toy while you move around. 
-
-
 A doodly whopper: double set with 6 shells consists of: 1" stainless steel keyrings, 1.5" lobster swivel clasps, 6x 1/2" inch grommets, 24x ¼ inch grommets (6 pairs), two handles and squishy gel beads to cover sharp edges.
 
 A doodly whopper shell is:
@@ -31,11 +37,9 @@ How To Make A Doodly Whopper
 
 instrucciones para construir el tuyo propio :)
 
-optimismo a través de la acción. Los chiflados son un poco como poi personalizados, manijas unidas a giratorias unidas a cubiertas de tela que contienen luces LED. Es de código abierto en github, puedes crear el tuyo propio y compartir diferentes versiones con tus amigos. Chispas fantásticas Con asas alrededor de la muñeca pueden mantener las manos y las luces alejadas del suelo. Utilizo un martillo para conectar las dos piezas de ojal de latón, tenga cuidado en general, también sea respetuoso con los que le rodean. Espero que pueda encontrar estos materiales donde se encuentre. Elegí el latón por sus propiedades relacionadas con el óxido / oxidación y el crecimiento de bacterias. Estos también se pueden lavar, o lo he probado sin arrepentirme. Cuando hagas estos, recuerda que LAS VIDAS NEGRAS IMPORTAN -
+optimismo a través de la acción. Los chiflados son un poco como poi personalizados, manijas unidas a giratorias unidas a cubiertas de tela que contienen luces LED. Es de código abierto en github, puedes crear el tuyo propio y compartir diferentes versiones con tus amigos. Chispas fantásticas Con asas alrededor de la muñeca pueden mantener las manos y las luces alejadas del suelo. Utilizo un martillo para conectar las dos piezas de ojal de latón, tenga cuidado en general, también sea respetuoso con los que le rodean. Espero que pueda encontrar estos materiales donde se encuentre. Elegí el latón por sus propiedades relacionadas con el óxido / oxidación y el crecimiento de bacterias. Estos también se pueden lavar, o lo he probado sin arrepentirme. Cuando hagas estos, recuerda que LAS VIDAS NEGRAS IMPORTAN 
 
 ensamblado con una variedad de materiales para ser duradero y proporcionar un juguete seguro mientras se mueve.
-
-
 Un juego doble con 6 carcasas que consta de: llaveros de acero inoxidable de 1 ", cierres giratorios de langosta de 1,5", ojales de 6 x 1/2 "de pulgada, ojales de 24 x ¼ de pulgada (6 pares), dos asas y cuentas de gel blanditas para cubrir afilados bordes.
 
 Un caparazón bobo es:
@@ -58,16 +62,15 @@ Cómo hacer un gallo Doodly
 
 ## ## ## ##
 
-Hello my name is Jonathan Foster, I value people over property, I look forward to when we don't waste millions of dollars funding this particular police force. END QUALIFIED IMMUNITY, this is my own perspective and understanding after growing up around this law enforcement force and seeing video evidence of their actions on stream. I understand that any group of employees working there will prioritize hurting people, they cannot be reformed and made into something that isn't abusive. I understand that you and I cannot be free until we are all free. I understand that the Seattle Police department employees who work for the city will continue to take money, abuse humans, capture humans and protect capital until their paychecks are gone. 
-
 Black Lives Matter
-1. Defund SPD by 100%
+1. Defund SPD by 100% at least
 2. Invest in Black communities
-3. Free ALL protesters
+3. Amnesty for ALL protesters
 4. No New Youth Jail
 5. Recall Jenny.D
-
 
 sacarlo a las calles, quitar le fondos a la policía, sin justicia no hay paz & take it to the streets, defund the police, no justice no peace
 
 ## ## ## ##
+END QUALIFIED IMMUNITY
+Hello my name is Jonathan Foster, I value people over property and this is my own perspective and understanding after growing up around the Seattle Police department. We don't have to waste millions of dollars funding this particular police force. There are better ways we can provide and care for our communities, we must love and support one another. The Seattle Police department employees in my understanding will prioritize hurting people, they cannot be reformed and made into something that isn't dangerous to the community. I understand that we cannot be free until police departments are dismantled, jails and prisons emptied to save lives. I understand that the Seattle Police department employees who work for the city will continue to take money, abuse humans, capture humans and protect capital until their paychecks are gone. 180 days of protest have passed, the Seattle Police department is asking for more money. The unpaid overtime money instead can be used in better and more effective ways directly in Black communities. A police officer doesn't learn since there are no consequences or accountability for their actions, qualified immunity prevents justice, police unions block progress. Defund the Seattle Police department please.
